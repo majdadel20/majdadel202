@@ -17,7 +17,8 @@ I am actively participating in the MIT ReACT Emerging Talent programme, where I 
 - French. ( Beginner) 
 - Arabic  ( Native) 
 
-
+## Fun 
+I'm a language enthusiast with a flair for French, spending countless hours each day unraveling its charm and elegance. The thrill of mastering a new language keeps me motivated! When I'm not lost in vocabulary and grammar, I dive into the world of embroidery, where I transform colorful threads into intricate designs. It's the perfect way to blend my love for creativity with my passion for learning! 
 
 ## Contact Information.
 - Email: [majdadelalsoud@gmail.com]

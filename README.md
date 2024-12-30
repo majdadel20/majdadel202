@@ -23,5 +23,4 @@ I'm a language enthusiast with a flair for French, spending countless hours each
 ## Contact Information.
 - Email: [majdadelalsoud@gmail.com]
 - LinkedIn: [https://www.linkedin.com/in/majd-abualsoud]
-- Phone: [+972598978804]
 - Location: Gaza Strip, Palestine
